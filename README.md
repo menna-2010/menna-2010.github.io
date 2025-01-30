@@ -10,13 +10,3 @@ i love helping every one in learning
 vortex is my passion
 
 new line 
-
-i am 15 years old
-
-i wish to be a person who every one loves 
-
-i am tall 
-
-i love swimming 
-
-diffrent changes 
