@@ -20,5 +20,3 @@ i am tall
 i love swimming 
 
 diffrent changes 
-
-i love my family 
